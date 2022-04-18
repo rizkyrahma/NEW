@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://uploader.caliph.my.id/file/HNxNfz8jND.jpg" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
+<img src="https://telegra.ph/file/4abb60c49d3851f20a8cd.png" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 
 </p>
